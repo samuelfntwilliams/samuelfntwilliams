@@ -6,5 +6,6 @@
 <br>
 
 <h6>#fentfather&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;#glassteapotyuri&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;#yuri</h6>
+<h6>im the ceo of plug intelligence x fent father</h6>
 
 </div>
