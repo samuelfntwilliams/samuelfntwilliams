@@ -1,14 +1,12 @@
 <div align=center>
 
-<h6> @IHASAFACE-LULZ made this </h6>
+<img width="373" height="383" alt="Screenshot_2025-07-23_151527-Photoroom" src="https://github.com/user-attachments/assets/7d25aa65-d709-4d33-80cb-d58d1e49f86e" />
 
 
-https://github.com/user-attachments/assets/f529bcae-4fa5-4f2e-8484-df55b73e4ad8
+
 
 
 <br>
 
-<h6>#fentfather&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;#glassteapotyuri&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;#yuri</h6>
-<h6>im the ceo of plug intelligence x fent father [yuri though] </h6>
-
+<h6>#fuckrice&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;#lesbian&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;#yuri</h6>
 </div>
