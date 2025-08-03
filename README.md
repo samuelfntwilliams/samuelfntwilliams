@@ -1,6 +1,7 @@
 <div align=center>
 
-<img width="373" height="383" alt="Screenshot_2025-07-23_151527-Photoroom" src="https://github.com/user-attachments/assets/7d25aa65-d709-4d33-80cb-d58d1e49f86e" />
+<img width="315" height="280" alt="IMG_0056" src="https://github.com/user-attachments/assets/5ae93e86-6b26-4259-bfed-83d14de6bae7" />
+
 
 
 
@@ -8,5 +9,5 @@
 
 <br>
 
-<h6>#glassteapots&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;#lesbian&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;#yuri</h6>
+<h6>-.. .. ....&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</h6>
 </div>
