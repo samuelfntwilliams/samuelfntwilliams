@@ -1,6 +1,6 @@
 <div align=center>
 
-<b> dont inspo off of my skins thanks just ask and dontcopy either</b>
+<b> please don't inspo or copy off of my skins, atleast ask first. </b>
 
 <br>
 
@@ -13,5 +13,6 @@
 
 <br>
 
-<h6> fat sam plum by noah &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</h6>
+<h6> sam plum by @IHASAFACE-LULZ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</h6>
+<h6> previously known as @fentfather</h6>
 </div>
