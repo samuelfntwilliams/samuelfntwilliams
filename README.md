@@ -6,4 +6,4 @@
 
 [ata](https://samuelfrnwilliams.atabook.org/) ┊ [straw](https://samuelfrnnwilliams.straw.page/) ┊ [rentry](https://rentry.co/lovehum) 
 
-<i> usualy offtab. </i>
+<i> usually offtab. </i>
