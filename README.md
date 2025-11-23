@@ -2,8 +2,10 @@
 
 <br>
 
-<img width="221" height="197" alt="IMG_0056" src="https://github.com/user-attachments/assets/5ae93e86-6b26-4259-bfed-83d14de6bae7" />
+<img width="256" height="343" alt="nil" src="https://i.postimg.cc/T19yMqrz/G5e8nd-EXw-AAnmq-C.png" />
 
 [ata](https://samuelfrnwilliams.atabook.org/) ┊ [straw](https://samuelfrnnwilliams.straw.page/) ┊ [rentry](https://rentry.co/lovehum) 
 
+  <i> ♡. she/he, __minor__ .• </i>
+  
 <i> usually offtab. </i>
